@@ -1,1 +1,1 @@
-# Sales-Insights-Brick-and_ motor-Business-
+# Sales Insights-Brick and Motor Business
